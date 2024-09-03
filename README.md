@@ -31,7 +31,7 @@ ChatGPT Plus相比普通版本有着显著的优势，例如支持绘画功能�
 
 通过此方法，你可以安全、独立地升级到GPT-4，几乎不会遇到封号问题。整个过程大约需要3分钟，升级完成后即可畅快使用GPT-4！
 
-> 注册链接（使用邀请码ACCPAY可优惠2美元）**：[WildCard 一分钟注册，轻松订阅海外软件服务](https://bit.ly/WildCardo)
+> 注册链接（使用邀请码ACCPAY可优惠1美元）：[WildCard 一分钟注册，轻松订阅海外软件服务](https://bit.ly/WildCardo)
 
 
 
